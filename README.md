@@ -1,4 +1,4 @@
-# How-to-Become-a-Virtual-Assistant-A-Step-by-Step-Guide
+# How to Become a Virtual Assistant A Step by Step Guide
 
 # Goldpeak Bitrow Test & Erfahrungen - Der Leitfaden 2025 zu Funktionen und Vorteilen
  
